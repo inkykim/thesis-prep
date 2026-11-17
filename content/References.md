@@ -1,3 +1,5 @@
+# References
+
 ## Scholarly
 
 - Chang, Kyung-Sup. “The Second Modern Condition? Compressed Modernity as Internalized Reflexive Cosmopolitization.” *The British Journal of Sociology* 61, no. 3 (2010): 444–464. [https://doi.org/10.1111/j.1468-4446.2010.01321.x](https://doi.org/10.1111/j.1468-4446.2010.01321.x).
